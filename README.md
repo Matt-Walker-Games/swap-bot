@@ -1,1 +1,2 @@
 no licence you can take the code and do as you wish but the music and images are just for use while playing the game on pages and not for reuse you will have to replace them with your own
+EDIT : ive added a skin pack in the bubbles zip they are cats and free to use just replace all the files that contain my logo other images are free to use like the power ups (you will still need to find your own music)
